@@ -42,7 +42,7 @@ Interactive coding projects that promote climate action and sustainability.
 
 ## Website
 
-https://thesquadplayz.com
+https://deksatitchula.com
 
 ---
 
